@@ -4,8 +4,8 @@
 - 💞️ I’m looking to collaborate on I'm looking to collaborate on a project if I'm looking for someone new on your team.<br> Or note that yes, despite having knowledge in basic languages, note that I am willing to grow together.
 - 📫 How to reach me:<br>
 Linkedin: <a href="https://www.linkedin.com/in/liana-lopes-306912186/"> Liana Lopes</a><br>
-Email:liana.kplopes@gmail.com<br>
-Instagram:<a href="https://www.instagram.com/wavessounds_/">@wavessounds_</a><br>
+Email: liana.kplopes@gmail.com<br>
+Instagram: <a href="https://www.instagram.com/wavessounds_/">@wavessounds_</a><br>
 Twitter: <a href="https://twitter.com/wavessounds_">@wavessounds_</a>
 
 <!---
